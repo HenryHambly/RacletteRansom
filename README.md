@@ -1,3 +1,3 @@
 # RacletteRansom
 
-We gonna ransom ever cheese factory!!! (evil laugh)
+We gonna ransom every cheese factory!!! (evil laugh)
